@@ -5,7 +5,7 @@ Seminars planning
 List of beaches
 ========
 
-* Kudle Beach
+* Kudle Beach sounds cute 
 * Bournemouth Beach
 * Brighton Beach
 * Gokarna Beach
